@@ -9,6 +9,7 @@ CorreioB Correio Do Estado Ano 68 Edição n. 21.418 22fev2021 #LasPromesseras n
 ![LasPromesseras Page Midia 01](https://user-images.githubusercontent.com/79057539/109561825-0fa36300-7ab4-11eb-851e-cb0f8d83ecaa.jpg)
 
 ## [No dia da mulher paraguaia, homenagem veio de documentário sobre fé  Lançado hoje, filme retrata histórias de quem se prometeu à Nossa Senhora do Caacupé e ainda faz questão de cumprir à risca; veja](https://www.facebook.com/LasPromesseras/posts/116236180463864)
+![LasPromesseras Page Midia 02](https://user-images.githubusercontent.com/79057539/109561853-16ca7100-7ab4-11eb-9177-e7133c548d16.jpg)
 
 ## [Documentário resgata tradição de promesseiras e fé em Nossa Senhora de Caacupé, em Porto Murtinho](https://www.facebook.com/LasPromesseras/posts/116159070471575)
 ![LasPromesseras Page Midia 03](https://user-images.githubusercontent.com/79057539/109561879-1cc05200-7ab4-11eb-8862-556f46e406fa.jpg)
@@ -30,7 +31,7 @@ CorreioB Correio Do Estado Ano 68 Edição n. 21.418 22fev2021 #LasPromesseras n
 ## [Teaser do Documentário #LasPromesseras Direção #MaraSilvestre #AguaComTV 2020](https://www.facebook.com/LasPromesseras/posts/114393363981479)
 ![LasPromesseras Page Midia 08](https://user-images.githubusercontent.com/79057539/109562039-48dbd300-7ab4-11eb-9429-fc875cc2b3d8.jpg) 
 
-## [#MaraSilvestre e #LasPromesseras no #PortaldaEducativa (#RTVE) #NaCadeiradoDJ  (17/02) na #Educativa104FM #Podcast(https://www.facebook.com/LasPromesseras/posts/114006350686847)
+## [#MaraSilvestre e #LasPromesseras no #PortaldaEducativa (#RTVE) #NaCadeiradoDJ  (17/02) na #Educativa104FM #Podcast](https://www.facebook.com/LasPromesseras/posts/114006350686847)
 ![LasPromesseras Page Midia 09](https://user-images.githubusercontent.com/79057539/109562074-52653b00-7ab4-11eb-8c20-e71c23e0f9f8.jpg)
 
 ## [Banners Documentário #LasPromesseras em destaque Na Cadeira do DJ #PortalE #RTVE #Educativa104FM #NaCadeiradoDJ desta quarta-feira (17/02)  10:30 na #Educativa104FM ](https://www.facebook.com/LasPromesseras/posts/113935740693908)
