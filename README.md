@@ -2,7 +2,7 @@
 
 ## [Agradeço os profissionais de mídia e comunicação pela adorável e primorosa cobertura do lançamento do Documentário Las Promesseras produzido pela Água Comunicação TV Mara Silvestre](https://www.facebook.com/laspromesseras.mara.silvestre/posts/116687590426289)
 
-Post)s) da Page de @LasPromesseras no Facebook
+Post(s) da Page de @LasPromesseras no Facebook
 
 ## [PROMESSAS DA FRONTEIRA](https://www.facebook.com/LasPromesseras/posts/115181257236023)
 CorreioB Correio Do Estado Ano 68 Edição n. 21.418 22fev2021 #LasPromesseras no #CorreioDoEstado
@@ -21,17 +21,17 @@ CorreioB Correio Do Estado Ano 68 Edição n. 21.418 22fev2021 #LasPromesseras n
 
 ## [Agradeço os profissionais de mídia e comunicação pela adorável e primorosa cobertura do lançamento do Documentário Las Promesseras produzido pela Água Comunicação TV Mara Silvestre](https://www.facebook.com/laspromesseras.mara.silvestre/posts/116687187092996)
 
-## []()
+## [Nota sobre o #Doc #LasPromesseras Direção #MaraSilvestre produzido pela Água Comunicação TV 2020 (#AguaComTV), incentivo #LeiAldirBlanc através da Prefeitura Municipal de #PortoMurtinho / Sectur PM, na Coluna #FernandoSoares no #Midiamax #06fev2021.](https://www.facebook.com/LasPromesseras/posts/116142670473215)
 ![LasPromesseras Page Midia 06](https://user-images.githubusercontent.com/79057539/109561962-3366a900-7ab4-11eb-92a9-a6261c848a8a.jpg)
 
-## []()
+## [Mesma promessa que curou doença liga pai e filha na cultura da fé Essa é uma das histórias do documentário Las Promesseiras, que mostra famílias devotas de Nossa Senhora dos Milagres de Caacupé](https://www.facebook.com/LasPromesseras/posts/116141153806700)
 ![LasPromesseras Page Midia 07](https://user-images.githubusercontent.com/79057539/109561989-3d88a780-7ab4-11eb-9fb0-414ed7ec2c4a.jpg)
 
-## []()
+## [Teaser do Documentário #LasPromesseras Direção #MaraSilvestre #AguaComTV 2020](https://www.facebook.com/LasPromesseras/posts/114393363981479)
 ![LasPromesseras Page Midia 08](https://user-images.githubusercontent.com/79057539/109562039-48dbd300-7ab4-11eb-9429-fc875cc2b3d8.jpg) 
 
-## []()
+## [#MaraSilvestre e #LasPromesseras no #PortaldaEducativa (#RTVE) #NaCadeiradoDJ  (17/02) na #Educativa104FM #Podcast(https://www.facebook.com/LasPromesseras/posts/114006350686847)
 ![LasPromesseras Page Midia 09](https://user-images.githubusercontent.com/79057539/109562074-52653b00-7ab4-11eb-8c20-e71c23e0f9f8.jpg)
 
-## []()
+## [Banners Documentário #LasPromesseras em destaque Na Cadeira do DJ #PortalE #RTVE #Educativa104FM #NaCadeiradoDJ desta quarta-feira (17/02)  10:30 na #Educativa104FM ](https://www.facebook.com/LasPromesseras/posts/113935740693908)
 ![LasPromesseras Page Midia 10](https://user-images.githubusercontent.com/79057539/109562102-5d1fd000-7ab4-11eb-9d52-77c4cbb7f0db.jpg)
